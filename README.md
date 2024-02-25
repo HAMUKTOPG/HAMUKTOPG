@@ -2,7 +2,7 @@
 - 👀 I’m interested in Mobilegames
 - 🌱 I’m currently learning Ethincal Hacking
 - 💞️ I’m looking to collaborate on basically nothing 
-- 📫 How to reach me , Here's my Instagram : Ya_its.moam
+- 📫 How to reach me , Here's my Instagram : Ya_its.moa
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: im learning only to prank my friends. 
 -
